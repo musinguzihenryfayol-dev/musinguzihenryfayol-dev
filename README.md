@@ -2,4 +2,5 @@
 🔗https://musinguzihenryfayol-dev.github.io/
 
 ## 🤖 AI Creative Hub
-🔗 [AI Creative Hub](🔗https://musinguzihenryfayol-dev.github.io/ai-creative-hub/)
+🔗 🔗https://musinguzihenryfayol-dev.github.io/ai-creative-hub/
+[AI Creative Hub]
